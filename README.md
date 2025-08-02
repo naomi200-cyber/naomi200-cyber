@@ -36,7 +36,7 @@ Soy **Analista TI** con formación profesional de grado superior y en proceso de
 
 - **Correo**: liareynaldoo@gmail.com
 - **LinkedIn**: [linkedin.com/in/tu-perfil](https://www.linkedin.com/in/naomi-reynaldo/)  
-- **Portafolio**: en desarollo
+- **Portafolio**: en desarrollo
 
 ---
 
